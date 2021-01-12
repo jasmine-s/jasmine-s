@@ -13,3 +13,5 @@ Know more about me:
 - 📫 How to reach me: LinkedIn 
 - ⚡ Facts: Working on self and always pushing myself forward to explore and learn.
 - Recent Work : https://jasmine-s.github.io/
+- Others : https://www.hackerrank.com/shaikjasmine525
+https://www.techgig.com/myprofile
